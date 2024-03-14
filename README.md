@@ -1,1 +1,0 @@
-# AE6.1_Asier_GallardoDelgado
